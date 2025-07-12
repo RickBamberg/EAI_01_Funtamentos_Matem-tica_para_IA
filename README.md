@@ -1,0 +1,1 @@
+# EAI_01_Funtamentos_Matem-tica_para_IA
